@@ -1,0 +1,2 @@
+# kirgyzandromedaa
+tampan idaman
